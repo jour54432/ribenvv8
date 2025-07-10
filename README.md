@@ -15,4 +15,4 @@
 安全方面，平台采用HTTPS加密传输，保护用户的隐私信息。无弹窗广告设计，避免干扰和风险，打造安心的观看环境。  
 总体而言，成人色站久久综合凭借丰富资源、高质量播放、免注册便捷以及安全保障，成为成人影片观看的优质平台。
 
-<span style="display:none;">[Canonical link]( )</span>
+<span style="display:none;">[Canonical link]( https://github.com/jour54432/ribenvv8)</span>
